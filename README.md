@@ -1,4 +1,4 @@
-# 12anime..end
+# 12anime.end
 
 
 
